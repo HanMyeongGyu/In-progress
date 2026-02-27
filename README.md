@@ -1,3 +1,5 @@
+https://www.notion.so/II-1-5ighting-26d4c904b05d80ba917cf53b22ce660e
+
 # 프로젝트 배경 및 프로세스 (Background & Process)
 
 > 팀 목표 설정을 건의하여 토의로 개인 담당 업무를 구체화하고 프로젝트의 핵심 방향을 정립한 과정입니다.
